@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Pinky-webtomi
+- 👋 Hi, I’m Oluwaseyifunmi Efunkunle
 - 👀 I’m interested in connecting and collaborating
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on Graphics design,Voiceover, Video editing and customer service role
